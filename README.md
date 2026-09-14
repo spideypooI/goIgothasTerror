@@ -7,7 +7,7 @@
 <p>
   <b>i go off-tab often, so whisper if you want to say something!</b> otherwise i probably won't notice your message. sometimes i'm less chatty, don't take it personally! i like to come on and just chill with my friends.</p>
 <p>i like great god grove, jrwi (specifically riptide, upp, apotheosis & bitb), endacopia, alice in wonderland, the amazing digital circus, homestuck, in stars and time, slimecicle, rick and morty, dungeon meshi, deadpool, welcome home + much more.</p>
-<p align="center"><sub><a href="https://inspekta.atabook.org/">atabook</a> ♠ <a href="https://funny.straw.page/">strawpage</a></sub></p>
+<p align="center"><sub><a href="https://inspekta.atabook.org/">atabook</a> ♠ <a href="https://funny.straw.page/">strawpage</a> ♠ <a href="https://thedrain.nekoweb.org/">my website</a></sub></p>
 <br>
 <details>
 <summary><b>stamps</b> (lots of gifs!)</summary>
